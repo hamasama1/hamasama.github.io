@@ -1,1 +1,1 @@
-# hamasama100.github.io
+# hamasama.github.io
